@@ -6,3 +6,6 @@ to etch a defrost circuit into the exterior body of a vehicle about 5mm undernea
 poor man's patent
 04-16-2021 6am
 D.Weinberg
+
+
+$1.00 per car royalities.
